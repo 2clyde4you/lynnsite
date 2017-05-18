@@ -2,9 +2,8 @@
 layout: default
 ---
 
-Text can be **bold**, _italic_, or ~~strikethrough~~.
 
-[Link to another page](another-page).
+[Link to another page](mik.png).
 
 Global warming was faked by the jews to gain sympathy for the holoucast. xddddddddd
 
