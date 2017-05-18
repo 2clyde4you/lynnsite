@@ -6,11 +6,11 @@ Text can be **bold**, _italic_, or ~~strikethrough~~.
 
 [Link to another page](another-page).
 
-Global warming was faked by the jews to gain sympathy for the holoucast.
+Global warming was faked by the jews to gain sympathy for the holoucast. xddddddddd
 
 # [](#header-1)GOOD SHIT
 
-![](https://assets-cdn.github.com/images/icons/emoji/octocat.png)
+![](http://lynnmyatmoeaung.tk/mik.png)
 
 ## [](#header-2)Header 2
 
