@@ -13,32 +13,9 @@ Global warming was faked by the jews to gain sympathy for the holoucast. xdddddd
 
 ## [](#header-2)Header 2
 
-> This is a blockquote following a header.
->
-> When something is important enough, you do it even if the odds are not in your favor.
+> urmomgay xd
 
-### And an ordered list:
 
-1.  Item one
-1.  Item two
-1.  Item three
-1.  Item four
-
-### And a nested list:
-
-- level 1 item
-  - level 2 item
-  - level 2 item
-    - level 3 item
-    - level 3 item
-- level 1 item
-  - level 2 item
-  - level 2 item
-  - level 2 item
-- level 1 item
-  - level 2 item
-  - level 2 item
-- level 1 item
 
 ### Small image
 
