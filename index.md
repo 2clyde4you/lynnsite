@@ -9,7 +9,7 @@ Global warming was faked by the jews to gain sympathy for the holoucast. xdddddd
 
 # [](#header-1)GOOD SHIT
 
-![](http://lynnmyatmoeaung.tk/mik.png)
+![](http://lynnmyatmoeaung.tk/spook.jpeg)
 
 ## [](#header-2)urmomgay
 
